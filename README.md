@@ -1,0 +1,1 @@
+# Nirdesh_Khadka_Concept_and_Tech_of_AI_Assignment1
